@@ -1,2 +1,2 @@
 # silent-space
-My original poems, collocted in January, 2017
+My original poems, collected in January, 2017
