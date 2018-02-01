@@ -16,3 +16,18 @@ My original poems, collected in January, 2017
 - –‘«‚æK•Ÿ‚æÂ‹ó‚æ
 - ‹‹—¿“ú
 
+### Titles in English
+
+- Christmas Is Coming
+- A Hurdle to Happiness
+- A Medicine for Culture of Companies
+- A Big Resistance
+- That's Right, That's Wrong
+- Others' Words Turn to Be Hundreds of Fists
+- Antiseverity
+- Long Long Queues
+- Receiving Matches
+- Cool
+- Satisfaction, Happiness, and Blue Sky!
+- Payday
+
